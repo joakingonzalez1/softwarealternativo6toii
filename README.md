@@ -1,0 +1,1 @@
+# softwarealternativo6toii
